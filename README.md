@@ -146,3 +146,157 @@ https://mega.nz/#F!K7AymayS!dfhnzccxCe2rLWOkTjC9Mw
 
 Curso Definitivo de JavaScript 2016
 https://mega.nz/#F!CnRnRKyS!5gGyWG
+
+
+
+
+----------------------------------------------------------------------------------------------------------------------------------------
+
+
+Todo Aportes Programación Y Estudios, [07.05.19 12:58]
+nDavluBuAHsAWQ
+
+Curso de Angular 4
+https://mega.nz/#F!3dRnVKKY!s6CM_gzTvL1ebC7h6d5JeA
+
+Curso de PWA con Angular
+https://mega.nz/#F!nEZjXC7I!LweEeyiNsaWwoAWiC1v8VA
+
+Curso Básico de Ionic
+https://mega.nz/#F!iJJlyCwL!l9YgSTKcJfwLy1JBw3Hrvg
+
+Curso de Ionic Avanzado
+https://mega.nz/#F!WFRnwITD!cBPEn8P-UpIDhZjdSBo1Gw
+
+Curso de Finanzas para Startups
+https://mega.nz/#F!fZxAiQrR!gBPEEf_B8S4xlw31BeS_4A
+
+Curso de Angular 6
+Contraseña: eybooks . com (quitar espacios)
+https://mega.nz/#F!CI4HzKDL!Yt-veDcl7inUbbJcoT3zwg
+
+Curso de Algoritmos con C
+https://mega.nz/#F!Gdo3CICY!798xdea3b8ClgDkGShz-9Q
+
+Fundamentos de Desarrollo de Hardware con Arduino
+https://mega.nz/#F!CMgxlYDY!5fNHePc0MZc2-pR-FVmnZA
+
+Curso de Robótica con Arduino
+https://mega.nz/#F!vppUCAqL!BNdZhLa4oNgLTQmXg9dVoQ
+
+Curso de Diseño de Circuitos Electrónicos
+https://mega.nz/#F!3MAkAQZR!X0O9NDw__U-4tgqb-FXo4g
+
+Curso de Atención al Cliente y Soporte a Usuarios
+https://mega.nz/#F!2Ip2xSwJ!jSs7EMsiAZk-PZy4HWk2MA
+
+Curso de Ventas y Fidelización de Clientes
+https://mega.nz/#F!SRhnnSQZ!exirfUFGIyub6in_9d-r0g
+
+Curso de Creación y Optimización del Funnel de Ventas
+https://mega.nz/#F!nZJGyYDQ!7WK-h9cb0QemzdE7fXy1-Q
+
+Curso de Hablar en Público
+https://mega.nz/#F!3MwniAha!jojSsgiBBrXaAKCQjJv4iw
+
+Curso de Inglés Básico
+https://mega.nz/#F!jNBwTSAK!NM652_DYN68xSXT6IsMkFw
+
+Curso de Escritura en Inglés
+https://mega.nz/#F!7MRCTCZQ!U6ox-qUqRmBqmdFVTU-OXQ
+
+Curso de Inglés Técnico para Profesionales 2018
+https://mega.nz/#F!GipxkAJa!MMuM07iPYKArBBFTrlopfA
+
+Fundamentos de Ingeniería de Software
+https://mega.nz/#F!6MYS0axA!WLdZWje0jh5r9Af0D6PyGQ
+
+Introducción a Terminal y Línea de Comandos
+https://mega.nz/#F!idIwBY6A!C3EdQJKYVQk-I-WE0Zh7vw
+
+Fundamentos de Bases de Datos
+https://mega.nz/#F!6FoADCLb!1vym3dc5bZgjgt0eGBar_Q
+
+Fundamentos de Arquitectura de Software
+https://mega.nz/#F!3NAyQCJa!FOIXCOLb3obeVCoOVOJKhg
+
+Curso Profesional de Arquitectura de Software
+https://mega.nz/#F!qZZ2CIIA!vB8qQ6Y7Pqc3NgNH4BbQKA
+
+Curso de Programación para Padres y Niños
+https://mega.nz/#F!eQgEVAqb!kJKzyIZUsbChejsmUF1R2w
+
+Escuela de Maestros Platzi
+https://mega.nz/#F!OE4CXSBC!Frl-wbLLohmwH-SUmiRpzA
+
+Curso de Expresiones Regulares
+https://mega.nz/#F!HI5C2QYK!E-qDiNbeUsNzKZ4_3crhZg
+
+Curso de CodeStream
+https://mega.nz/#F!eEoyFaKR!17f44DuhKQATY0t_UA0K3Q
+
+Curso de redes de internet
+https://mega.nz/#F!6Yg2SahD!jG11kwq52ArlfOT11-4mjg
+
+Curso de Transformación Digital para Empresas
+https://mega.nz/#F!yVoQCKwJ!fM1pHrXnuKmoz-INef08_A
+
+Curso de Design Thinking con Minds Garage
+https://mega.nz/#F!8wRzXYJa!d7DM_FSVDyg7PhAW2y9zVw
+
+Curso de Design Sprint
+https://mega.nz/#F!RxAzVKjS!aHBkCLizZ6CEPqIwvBBXpQ
+
+Curso de Business Model Canvas
+https://mega.nz/#F!QpRxFAoQ!n71sMI2RdAvHBXvTpBZ_JQ
+
+Curso de SCRUM
+https://mega.nz/#F!RkIX2SIB!FRXsxtg0DSCUxSV2ouT9QQ
+
+Fundamentos de la Gestión de Proyectos
+https://mega.nz/#F!5wRznaDD!wc6-0WQM_0yTKVseOGo1dA
+
+Curso de Growth Marketing
+https://mega.nz/#F!JhAiFAjC!B8Ygv44c6wkFgSxVEI-v-A
+
+Curso de Introducción al Marketing Digital
+https://mega.nz/#F!AgYSWajA!2uWsN_ifT9sqGkorU3cnMg
+
+Curso de Content Marketing
+https://mega.nz/#F!Sr4nmCoT!mJeES46_1cDWYfrTUxH-qg
+
+Cómo prepararte profesionalmente para el futuro
+https://mega.nz/#F!DzolkA4Z!TPMFol0Q-gJ6EuIs4L4Idw
+
+Curso de Escritura Online
+https://mega.nz/#F!n2wVFArD!rdSfHXpiOLj0q6yCNa3poQ
+
+Curso para Líderes en formación
+https://mega.nz/#F!H6gFXSBY!YCYdOdwGLAjN-rdOS1MaiA
+
+Curso de Storytelling
+https://mega.nz/#F!7zh11IQY!n3cJioW8akiIUOHaoragYQ
+
+Curso de Liderazgo para Equipos de Trabajo
+https://mega.nz/#F!f643BIrS!_AcG7-cHJEopQrEyDSraFQ
+
+Curso de Finanzas Personales
+https://mega.nz/#F!6qpFnARY!iVl9ODYwluv0Ib5NTVAFag
+
+Curso de Administración de Servidores Linux
+https://mega.nz/#F!jjZSzKoa!1u7mx20TF-oTwZP3v-NFTw
+
+Curso Profesional de Data Science
+https://mega.nz/#F!37IUVAYR!F5FFoc4HzOhjX1hsGWSLjQ
+
+Curso básico de Vue.js
+https://mega.nz/#F!y4FFiSKB!cGckB57Ka372wqD8Be6Rpg
+
+Curso Profesional de Vue.js
+https://mega.nz/#F!n75xhIxB!puHez0dJoi6c_1Op_-8hdw
+
+Curso de MEAN
+https://mega.nz/#F!y4dXiQZL!tkvTonB20ldd2-Rj61-oBA
+
+Curso de WebPack
+https://mega.nz/#F!atFxVaLK
